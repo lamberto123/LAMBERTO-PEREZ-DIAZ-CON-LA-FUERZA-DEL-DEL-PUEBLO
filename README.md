@@ -2,7 +2,7 @@ LAMBERTO-PEREZ-DIAZ-CON-LA-FUERZA--DEL-PUEBLO
 
 
 
-Numbre:______________________________
+Numbre:_____________________________
 
 Apellidos:___________________________
 
