@@ -1,2 +1,15 @@
-# LAMBERTO-PEREZ-DIAZ-CON-LA-FUERZA-DEL-DEL-PUEBLO
-LA FUERZA DEL PUEBLO 
+LAMBERTO-PEREZ-DIAZ-CON-LA-FUERZA--DEL-PUEBLO
+
+
+
+Numbre:______________________________
+
+Apellidos:___________________________
+
+Telefono:____________________________
+
+Direccion:____________________________
+
+______________________________________
+
+Cedula:_______________________________
